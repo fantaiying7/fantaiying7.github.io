@@ -1,2 +1,2 @@
-# fantaiying.github.io
+# fantaiying7.github.io
 fty
