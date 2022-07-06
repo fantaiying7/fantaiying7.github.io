@@ -1,0 +1,2 @@
+# fantaiying.github.io
+fty
